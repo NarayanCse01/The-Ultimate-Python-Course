@@ -15,7 +15,7 @@ If you did not twinkle so.
 
 In the dark blue sky you keep,
 And often thro' my curtains peep,
-For you never shut your eye,
+For you neveR shut your eye,
 Till the sun is in the sky.
 
 'Tis your bright and tiny spark,
